@@ -1,2 +1,5 @@
 # yolofunechungus
-welcom 2 yolo fune chungus
+
+yolo fune chungus is epic
+\
+subscribe
